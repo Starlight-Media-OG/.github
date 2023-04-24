@@ -4,5 +4,7 @@ your creative advertising agency for startups! We develop brand identities, webs
 
 ## Contact us
 Dvorak Philipp: +43 676 447 4457 / philipp@starlight-media.at
+
 Schauer Alexander: +43 676 9216 488 / alex@starlight-media.at
+
 Office: office@starlight-media.at
